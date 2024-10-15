@@ -1,4 +1,4 @@
-# :dog2: Grey G
+# :dog2: Gary G
 
 **`Software Apprentice (Developer/Sports/Cook)`**
 
